@@ -1,1 +1,1 @@
-![POAP Winner Speaker](https://user-images.githubusercontent.com/26789429/142045982-9a560d59-91bf-4c4e-8616-b3b185a8fb89.png)
+![POAP Speaker](https://user-images.githubusercontent.com/26789429/142255999-878a7f51-bdd6-452e-b7fe-08a599ad59d8.png)
